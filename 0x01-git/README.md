@@ -1,1 +1,1 @@
-Grit and Growth
+Gand and growth
